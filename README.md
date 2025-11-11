@@ -1,1 +1,1 @@
-# individual-planning
+Project Planning Stage - Individual
